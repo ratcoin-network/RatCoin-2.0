@@ -43,6 +43,7 @@ Telegram (Portuguese) - https://t.me/ratcoinptbr<br>
 BitcoinTalk - https://bitcointalk.org/index.php?topic=5066723.0<br>
 Twitter - https://twitter.com/RatcoinR<br>
 Facebook - https://www.facebook.com/ratcoinrat/<br>
+Instagram - https://www.instagram.com/ratcoin <br>
 YouTube - https://www.youtube.com/channel/UCqe62xEEgJ5nPMFxfChTvDw/<br>
 Discord - https://discord.com/invite/6M27VCJ<br>
 Reddit - https://www.reddit.com/user/RatcoinTK<br>
